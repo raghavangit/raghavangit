@@ -1,4 +1,4 @@
-Penn State 2028 <br> Computer Engineering<br>
+Penn State 2028 <br> Electrical Engineering<br>
 
 
 ## 🌐 Socials:
